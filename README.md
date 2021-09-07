@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Veron Tan!
+- 👀 I’m interested in alot of things but mainly Designing and Coding (still learning lul)
+- 🌱 I’m currently studying BSC (HONS) in Information Technology in Sunway University Malaysia
+- 📫 You can reach me at veronwltan97@gmail.com
